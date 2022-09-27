@@ -1,1 +1,0 @@
-# trabalhoescolar-redacao
